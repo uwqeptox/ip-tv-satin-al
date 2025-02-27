@@ -1,3 +1,8 @@
+## <a href="https://kaliteiptvtr5.com/" title="beinsports">IPTV SATIN ALMAK İÇİN TIKLA</a>
+<a href="https://kaliteiptvtr5.com/" title="beinsports">
+    <img src="http://hizliresims.com/kaliteiptvlogo.png" alt="beinsports" style="max-width: 100%; border: 2px solid #ddd; margin-top: 15px;">
+</a>
+
 # IPTV Satın Al - En İyi Yayın Deneyimi
 
 Geleneksel televizyon yayınlarından sıkıldınız mı? **IPTV satın al** seçeneği ile binlerce kanal, film ve diziye yüksek kaliteyle ulaşabilirsiniz. Üstelik kesintisiz yayın akışı ve uygun fiyatlı paket seçenekleriyle en iyi IPTV deneyimini yaşayabilirsiniz.
